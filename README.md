@@ -15,8 +15,10 @@ F1A529
    [![Typing SVG](https://readme-typing-svg.demolab.com?font=Pattaya&duration=3200&pause=27&color=D3931ECF&background=36000079&center=true&vCenter=true&width=435&lines=%F0%93%8A%88+You+Should+Be+F%E2%9C%ADcking+With+No+One+Else%E2%80%94+%F0%93%8A%89;%F0%93%8A%88+Anyone+But+Me+Is+An+Anitpathy!++%F0%93%8A%89;%F0%93%8A%88+Anyone+But+Me+Is+Just+Your+Enemy+%F0%93%8A%89;%F0%93%8A%88+Only+I+See+You%E1%83%A6++%F0%93%8A%89;%F0%93%8A%88+The+Way+You+Want+To+See+Yourself+%F0%93%8A%89;%F0%93%8A%88+You+Should+Be+F%E2%9C%A6cking+With+No+One+Else!!+%CB%83%CD%88%E2%97%A1%CB%82%CD%88%F0%93%8A%89)](https://git.io/typing-svg)
 <div align= center>
    <h1><img src="https://github.com/user-attachments/assets/ccddcaed-a2f8-492d-84c8-7fcb569d2f49"/></h1>
-     <p>${\color{#861003}彡Ted⊹๑}$</p>
-     <p>${\color{#f1a529}He}$ ${\color{#861003}/}$ ${\color{#f1a529}Him}$</p>
+
+  <p>${\color{#f1a529}﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌}$
+  <p>${\color{#861003}彡Ted⊹๑}$</p>
+     <p>${\color{#861003}ˏ  ˏ}$ ${\color{#f1a529}He}$ ${\color{#861003}/}$ ${\color{#f1a529}Him}$</p>
    <p>${\color{#f1a529}Basic}$ ${\color{#861003}DNI}$ ${\color{#f1a529}Criteria!}$</p>
   <p><img src="https://github.com/user-attachments/assets/96055064-b4c6-4856-969f-1d63cfd6e93e"wdith="25" height="25"/>
      ${\color{#f1a529}Pansexual}$</p>
