@@ -1,6 +1,4 @@
 
-F1A529
-861003
 <div align= center>
 <img src="https://github.com/user-attachments/assets/bf42510c-4e81-4dc3-85e7-0bc2ac2e1e60" />
 
