@@ -21,7 +21,7 @@ F1A529
      <p>${\color{#861003}ּ ֶָ֢.}$ ${\color{#f1a529}Ｈｅ}$ ${\color{#861003}ᛝ}$ ${\color{#f1a529}Ｈｉｍ}$ ${\color{#861003}ഒ·˚}$</p>
    <p>${\color{#f1a529}֮𝘉𝘢𝘴𝘪𝘤}$ ${\color{#861003}ＤＮＩ}$ ${\color{#f1a529}𝘊𝘳𝘪𝘵𝘦𝘳𝘪𝘢!}$</p>
   <p><img src="https://github.com/user-attachments/assets/96055064-b4c6-4856-969f-1d63cfd6e93e"wdith="25" height="25"/>
-     ${\color{#f1a529}Ｐａｎｓｅｘｕａｌ}$ ${\color{#f1a529}ᢉ𐭩}$</p>
+     ${\color{#f1a529}Ｐａｎｓｅｘｕａｌ}$ ${\color{#f1a529}˖Ი𐑼ּ ֶָ֢.}$</p>
    </td>
   </tr>
 
