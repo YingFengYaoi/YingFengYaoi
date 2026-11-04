@@ -23,7 +23,8 @@ F1A529
      ${\color{#f1a529}Ｐａｎｓｅｘｕａｌ}$ ${\color{#f1a529}˖Ი𐑼ּ ֶָ֢.}$</p>
    </td>
   </tr>
-
+</table>
+<img src="https://github.com/user-attachments/assets/6b16cfa6-799a-471a-ab4f-fe6f8c7c60c0" />
 
 
  
