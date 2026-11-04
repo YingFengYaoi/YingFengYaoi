@@ -21,6 +21,8 @@ F1A529
    <p>${\color{#f1a529}֮𝘉𝘢𝘴𝘪𝘤}$ ${\color{#861003}ＤＮＩ}$ ${\color{#f1a529}𝘊𝘳𝘪𝘵𝘦𝘳𝘪𝘢!}$</p>
   <p><img src="https://github.com/user-attachments/assets/96055064-b4c6-4856-969f-1d63cfd6e93e"width="25" height="25"/>
      ${\color{#f1a529}Ｐａｎｓｅｘｕａｌ}$ ${\color{#f1a529}˖Ი𐑼ּ ֶָ֢.}$</p>
+     (
+    <p>${\color{#f1a529}ᨳଓ𝙄ㅤ𝙖𝙢 𝙬𝙞𝙡𝙞𝙣𝙜ㅤ𝙩𝙤ㅤ𝙗𝙚𝙛𝙧𝙞𝙚𝙣𝙙ㅤ𝙖𝙣𝙮𝙤𝙣𝙚!ㅤ૮ ˶ˆ ﻌ ˆ˶ ა</p>
    </td>
   </tr>
 </table>
