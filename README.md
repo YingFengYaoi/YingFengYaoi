@@ -15,18 +15,17 @@ F1A529
 <div align= center>
    <h1><img src="https://github.com/user-attachments/assets/ccddcaed-a2f8-492d-84c8-7fcb569d2f49"/></h1>
 
-  <p>${\color{#f1a529}﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌}$
+  <p>${\color{#f1a529}﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌}$</p>
   <p><img src="https://github.com/user-attachments/assets/77dd1315-9359-46ab-95a1-dc3640011261"width="25" height="25"/> ${\color{#861003}彡Ted⊹๑}$</p>
      <p>${\color{#861003}ּ ֶָ֢.}$ ${\color{#f1a529}Ｈｅ}$ ${\color{#861003}ᛝ}$ ${\color{#f1a529}Ｈｉｍ}$ ${\color{#861003}ഒ·˚}$</p>
    <p>${\color{#f1a529}֮𝘉𝘢𝘴𝘪𝘤}$ ${\color{#861003}ＤＮＩ}$ ${\color{#f1a529}𝘊𝘳𝘪𝘵𝘦𝘳𝘪𝘢!}$</p>
   <p><img src="https://github.com/user-attachments/assets/96055064-b4c6-4856-969f-1d63cfd6e93e"width="25" height="25"/>
      ${\color{#f1a529}Ｐａｎｓｅｘｕａｌ}$ ${\color{#f1a529}˖Ი𐑼ּ ֶָ֢.}$</p>
-     (
-    <p>${\color{#f1a529}ᨳଓ𝙄ㅤ𝙖𝙢 𝙬𝙞𝙡𝙞𝙣𝙜ㅤ𝙩𝙤ㅤ𝙗𝙚𝙛𝙧𝙞𝙚𝙣𝙙ㅤ𝙖𝙣𝙮𝙤𝙣𝙚!ㅤ૮ ˶ˆ ﻌ ˆ˶ ა</p>
+    <p>${\color{#f1a529}ᨳଓㅤ𝙄ㅤ𝙖𝙢 ㅤ𝙬𝙞𝙡𝙞𝙣𝙜ㅤ𝙩𝙤ㅤ𝙗𝙚𝙛𝙧𝙞𝙚𝙣𝙙ㅤ𝙖𝙣𝙮𝙤𝙣𝙚!ㅤ૮ ˶ˆㅤ ﻌ ㅤˆ˶ ა}$</p>
+   <p>${\color{#f1a529}﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌}$</p>
    </td>
   </tr>
 </table>
 <img src="https://github.com/user-attachments/assets/6b16cfa6-799a-471a-ab4f-fe6f8c7c60c0" />
-
 
  
